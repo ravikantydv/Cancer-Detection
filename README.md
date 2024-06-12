@@ -34,6 +34,6 @@ melanomas and moles, whose images are slightly dominant.
 
 
 ## Contact
--Created by https://www.linkedin.com/in/aditiasharma/ - feel free to contact me!
+-Created by https://www.linkedin.com/in/ravikant-yadav-9242691ba - feel free to contact me!
 
 
